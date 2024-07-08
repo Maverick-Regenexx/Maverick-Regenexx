@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Life
 - 📫 How to reach me - email
 - 😄 Pronouns: guess...
-- ⚡ Fun fact: Baby bats are larger than adult bats
+- ⚡ Fun fact: Some baby fruit bats are larger than the adult fruit bats
 
 <!---
 Maverick-Regenexx/Maverick-Regenexx is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
